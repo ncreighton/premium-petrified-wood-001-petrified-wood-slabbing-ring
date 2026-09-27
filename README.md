@@ -1,0 +1,2 @@
+# premium-petrified-wood-001-petrified-wood-slabbing-ring
+Tired of guessing the angle and wasting precious petrified wood on failed cuts? This Workshop turns every slice into a masterpiece.  Stop risking expensive material with trial and error. This Notion template gives you a systematic workflow—from slab selection to ring saw finishing—so you reduce waste, improve precision, and finally create rings tha
